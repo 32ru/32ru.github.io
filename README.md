@@ -1,2 +1,2 @@
-# 3ru.github.io
-3RUбля, Inc.
+# 32 ruбля
+32 ruбля, Inc.
